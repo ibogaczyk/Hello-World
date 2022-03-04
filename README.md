@@ -5,4 +5,4 @@
 ##### Files Used
 ###### **Additional _Documentation_**
 ###### ***Version Summary*** 
-I am currently a sophomore at The University of Iowa studying Business Analytics on the Business Analytics and Information Systems track. I am also obtaining my International Business certificate through the Tippie College of Business. 
+I am currently a sophomore at The University of Iowa studying Business Analytics on the Business Analytics and Information Systems track. I am also obtaining my International Business certificate through the Tippie College of Business. 👍
